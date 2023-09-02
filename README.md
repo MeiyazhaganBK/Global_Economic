@@ -35,3 +35,10 @@ Getting Started With Enterprise Data Science Badge
 
 Journey to Cloud Envisioning Your Solution Badge
 ![journey-to-cloud-envisioning-your-solution 2](https://github.com/Shashmithayoganarajah/GLOBAL_ECONOMIC_DATA/assets/139777522/684da29f-d252-4e77-aede-2bd07e3ec985)
+
+
+
+Certification 
+
+[Journey_to_Cloud__Envisioning_Your_Solution_Badge20230902-28-a6qe6r.pdf](https://github.com/MEIYAZHAGAN BK/Global-Economic-data/files/12503649/Journey_to_Cloud__Envisioning_Your_Solution_Badge20230902-28-a6qe6r.pdf)
+
