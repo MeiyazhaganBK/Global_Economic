@@ -39,7 +39,8 @@ Journey to Cloud Envisioning Your Solution Badge
 
 Certificate 
 
-[mei .pdf](https://github.com/MeiyazhaganBK/Global_Economic/files/12503656/mei.pdf)
+[Getting_Started_with_Enterprise_Data_Science_Badge20230902-28-2hmh56.pdf](https://github.com/MeiyazhaganBK/Global_Economic/files/12503657/Getting_Started_with_Enterprise_Data_Science_Badge20230902-28-2hmh56.pdf)
+
 
 
 
