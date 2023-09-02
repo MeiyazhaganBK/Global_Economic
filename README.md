@@ -48,3 +48,8 @@ Certificate
 Certification 
 
 
+
+[Journey_to_Cloud__Envisioning_Your_Solution_Badge20230902-28-ntwgwe.pdf](https://github.com/MeiyazhaganBK/Global_Economic/files/12503665/Journey_to_Cloud__Envisioning_Your_Solution_Badge20230902-28-ntwgwe.pdf)
+
+
+
