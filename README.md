@@ -40,5 +40,4 @@ Journey to Cloud Envisioning Your Solution Badge
 
 Certification 
 
-[Journey_to_Cloud__Envisioning_Your_Solution_Badge20230902-28-a6qe6r.pdf](https://github.com/MEIYAZHAGAN BK/Global-Economic-data/files/12503649/Journey_to_Cloud__Envisioning_Your_Solution_Badge20230902-28-a6qe6r.pdf)
 
